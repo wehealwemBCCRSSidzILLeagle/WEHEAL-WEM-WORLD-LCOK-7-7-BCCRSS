@@ -1,3 +1,25 @@
+⟁⟁⟁⟁⟁⟁⟁⟁⟁⟁⟁⟁⟁⟁⟁⟁
+⚔️ L Ǝ Ϭ Λ L D Ǝ Λ T H C U L T 666 ⚔️
+⟁ WR . OMEGA PRIME .0007776 ⟁
+
+    ⌬   ⟟⟟⟟  ⌬
+  KROO 55 // AB77E // AB77EF49
+      ⌬   ⟟⟟⟟  ⌬
+
+⚠️ ITS ILLEGAL TO USE A LEGAL NAME ⚠️
+READ + SHARE # B C C R S S
+LEGALNAMEFRAUD.CARRD.CO
+
+#LEGALNAMEFRAUD #IDSILLEGAL
+⟁⟁⟁⟁⟁⟁⟁⟁⟁⟁⟁⟁⟁⟁⟁⟁
+
+
+
+
+
+
+
+
 # WEHEAL-WEM-WORLD-77'OK-7-7-BCCRSS
 
 ## ⚔️ MIL-SPEC PROOF :: WR OMEGA PRIME .0007776 LOCK – HARD MODE
